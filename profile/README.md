@@ -1,4 +1,4 @@
-## Hi there 👋 Welcome to our geek and nerd world! 
+## Hi there 👋 Welcome to our world! 
 
 <!--
 
